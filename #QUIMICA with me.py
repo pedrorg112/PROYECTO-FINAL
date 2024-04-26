@@ -1,2 +1,0 @@
-#QUIMICA with me
-
